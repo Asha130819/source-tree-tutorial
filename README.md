@@ -1,4 +1,5 @@
-![image](https://github.com/Asha130819/source-tree-tutorial/assets/87024352/7dbd5c7e-02d2-482c-a370-bc11b9c33e4a)
+
+![Capture](https://github.com/Asha130819/source-tree-tutorial/assets/87024352/b4fad652-bf4b-4ec9-b984-0199cdb823ff)
 
 
 
