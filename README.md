@@ -7,6 +7,7 @@
 
 ![Screenshot_1705383447640 (1)](https://github.com/Asha130819/source-tree-tutorial/assets/87024352/2e6d6e28-af54-4bf1-b09d-6101cd50cc5d)
 
+![Screenshot_1705383483320](https://github.com/Asha130819/source-tree-tutorial/assets/87024352/36f3612a-0089-4369-8121-6479d37b17bb)
 
 
 
